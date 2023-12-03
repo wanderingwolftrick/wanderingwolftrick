@@ -9,7 +9,7 @@
 <br> ⸝⸝ I'm usually at party island or the mcyt area! If you see me come say hi! (And nothing else please, i'm super awkward)
 <br> ⸝⸝ W2I! I'm not gonna notice you otherwise. I'm very busy ww ![trick dead](https://github.com/wanderingwolftrick/wanderingwolftrick/assets/152709062/9d7398a2-da66-43b9-8b7b-5228056e88e0)
 
-⸝⸝ [Rentry is a WIP rn, still check it out tho!](https://rentry.co/wanderingwolf) <sub> Plus it'll tell you more about me! </sub>
+⸝⸝ [Check out my rentry](https://rentry.co/wanderingwolf) <sub> it'll tell you more about me! </sub>
 
 ![wwt 5](https://github.com/wanderingwolftrick/wanderingwolftrick/assets/152709062/9305fa52-ba18-4fde-a149-3315950b7edf) 
 
